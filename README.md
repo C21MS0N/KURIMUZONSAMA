@@ -1,2 +1,0 @@
-# KURIMUZONSAMA
-Yare Yare
